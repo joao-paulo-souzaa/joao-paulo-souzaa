@@ -1,4 +1,4 @@
-## Ne,-vindo(a) ao perfil do João Paulo de Souza 😁
+## Bem-vindo(a) ao perfil do João Paulo de Souza 😁
 
 <div>
   <a href="https://github.com/joao-paulo-souzaa">
